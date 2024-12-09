@@ -11,5 +11,5 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is I have a long second toe
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
+* Ask Mr. Vu anything: When did you go bald
+* List your sports and extracurriculars you participate in 
